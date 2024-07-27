@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @ahyng
+- 👋 Hi, I’m ahyng!
 
 
